@@ -1,4 +1,4 @@
-### Im ark! 
+### Hey! 👋
 
 I'm ark! 
 
